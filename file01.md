@@ -1,1 +1,1 @@
-one sunny day, i went to macdonalds to eat brekfast as i wanted to get fat. when i reached, i saw my friend tom. i know him from primary school and he is the fattest person i knew. he is 300kg!!!! 
+one sunny day, i went to macdonalds to eat brekfast as i wanted to get fat. when i reached, i saw my friend tom. i know him from primary school and he is the fattest person i knew. he is 300kg!!!! then i met another classmate called john , john was the skinniest person in the class. BUt NOW . he was fatter than tom !! he was 500 kg !! so fat
